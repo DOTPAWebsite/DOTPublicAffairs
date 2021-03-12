@@ -1,3 +1,1 @@
-# Get Started!
-
-Add files and start typing 🎉
+# Owned and Organized by the DOT Public Affairs Command.
